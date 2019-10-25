@@ -6,9 +6,9 @@ Discuss the advantages and disadvantages of escaping the office and working from
 ___
 
 Nowadays, increasingly more people prefer to work from their homes rather than in an office.
-For many people the ability to work remotely is the key factor when looking for a new job.
+For many people, the ability to work remotely is the key factor when looking for a new job.
 However, there are some downsides to going full-time away from an office.
-In this essay I will discuss some pros and cons of becoming an at-home worker.
+In this essay, I will discuss some pros and cons of becoming an at-home worker.
 
 Let's begin by looking at the advantages of leaving an office job.
 One of the main positive advantages is cutting your commute.
@@ -17,11 +17,11 @@ Transitioning to a remote position will mean they will be able to save this time
 
 Secondly, going remote allows many people to work and travel at the same time.
 For example, they can visit their parents in another town or a friend who studies abroad.
-For remote workers with a seasonal depression it is especially important. They are able to relocate to other countries to mitigate the effect of bad climate.
+For remote workers with seasonal depression it is especially important. They are able to relocate to other countries to mitigate the effect of bad climate.
 
 Turning to the other side of the argument, it's hard to stay as productive as you were in the office settings.
 In other words, when workers go full time away from an office they are responsible for time management and setting up a distraction-free environment.
-For some people it can be hard or even impossible thing to do.
+For some people, it can be hard or even impossible thing to do.
 
 Another issue is that remote workers can sometimes feel personally isolated.
 It's much harder to keep close relationships with a team and bosses when all communication is done through digital devices.
